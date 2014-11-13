@@ -6,3 +6,6 @@ HHH!
 あいうえお
 っっっっっっk
 kjuikjuikjui
+
+
+ここにかきこみ
