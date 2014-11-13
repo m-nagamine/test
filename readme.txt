@@ -5,7 +5,7 @@ HHH!
 
 あいうえお
 っっっっっっk
-kjuikjuikjui
+kjuikjuikjui LLLLLLLLLLLLLLLLLLLL
 
 ここにかきこみ
 っkっっろおおいい
